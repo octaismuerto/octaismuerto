@@ -8,7 +8,7 @@ octaismuerto‎ꫂ᭪݁
 
 17 - he / him ࣭ ᘐ ◞
 
-💉ꜝꜞ c + h freely!
+💉ꜝꜞ Interact freely, probably will be afk tho. .𖦹ࡇ𖦹 I also don't talk a lot
 
 mostly creating ponies ˳ 𓏲 ˑ
 
