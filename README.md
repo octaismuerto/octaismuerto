@@ -1,3 +1,4 @@
+<img width="800" height="800" alt="IMG-3498" src="https://github.com/user-attachments/assets/6df08353-1bed-4c2e-a585-69e2aca50021" />
 octaismuerto‎ꫂ᭪݁
 
 <img width="500" height="281" alt="descarga (5)" src="https://github.com/user-attachments/assets/e64f9316-3a76-4192-91e0-b63541b0ea55" />
