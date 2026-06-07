@@ -1,16 +1,15 @@
-## Hi there 👋
+octaismuerto‎ꫂ᭪݁
 
-<!--
-**octaismuerto/octaismuerto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="500" height="281" alt="descarga (5)" src="https://github.com/user-attachments/assets/e64f9316-3a76-4192-91e0-b63541b0ea55" />
 
-Here are some ideas to get you started:
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+۫ 𐑺 octa 🌺ˑ ⌕
+
+17 - he / him ࣭ ᘐ ◞
+
+💉ꜝꜞ c + h freely!
+
+mostly creating ponies ˳ 𓏲 ˑ
+
+︶⊹︶︶⠀୨୧⠀︶︶⊹︶
