@@ -2,10 +2,8 @@ octaismuerto‎ꫂ᭪݁
 
 <img width="500" height="281" alt="descarga (5)" src="https://github.com/user-attachments/assets/e64f9316-3a76-4192-91e0-b63541b0ea55" />
 
-<img width="390" height="14" alt="IMG_9668" src="https://github.com/user-attachments/assets/c985734c-c3d1-4a8d-bdae-27a84f35d2fd" />
-
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
-
+<img width="390" height="14" alt="IMG_9668" src="https://github.com/user-attachments/assets/c985734c-c3d1-4a8d-bdae-27a84f35d2fd" />
 ۫ 𐑺 octa 🌺ˑ ⌕
 
 17 - he / him ࣭ ᘐ ◞
