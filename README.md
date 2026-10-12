@@ -1,7 +1,8 @@
 
 octaismuerto‎ꫂ᭪݁
 
-<img width="500" height="281" alt="descarga (5)" src="https://github.com/user-attachments/assets/e64f9316-3a76-4192-91e0-b63541b0ea55" />
+<img width="400" height="225" alt="tumblr_pm9t8qrwK61y4q8u2o2_400" src="https://github.com/user-attachments/assets/c9e29f58-4c63-4db7-9563-c04c3402dad1" />
+
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
 
