@@ -2,7 +2,7 @@
 
 octaismuerto‎ꫂ᭪݁
 
-<img width="700" height="425" alt="tumblr_pm9t8qrwK61y4q8u2o2_400" src="https://github.com/user-attachments/assets/c9e29f58-4c63-4db7-9563-c04c3402dad1" />
+<img width="600" height="425" alt="tumblr_pm9t8qrwK61y4q8u2o2_400" src="https://github.com/user-attachments/assets/c9e29f58-4c63-4db7-9563-c04c3402dad1" />
 
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
