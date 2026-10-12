@@ -1,4 +1,4 @@
-<img width="500" height="200" alt="0046" src="https://github.com/user-attachments/assets/098a260e-5fe1-4d67-a932-f442f9e5141f" />
+<img width="666" height="375" alt="Octa_s_Page_-removebg-preview" src="https://github.com/user-attachments/assets/93aaaa60-c160-4102-864f-b11ee7a6a052" />
 
 octaismuerto‎ꫂ᭪݁
 
